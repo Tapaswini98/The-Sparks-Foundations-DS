@@ -56,4 +56,5 @@
  - [LinkedIn](https://www.linkedin.com/posts/tapaswini-kar-44138717a_the-sparks-foundation-task-6-gripnov20-activity-6734802195176275968-JLv5 "LinkedIn")
 
 
-> Thank you for visting **_[Tapaswini Kar](https://www.linkedin.com/in/tapaswini-kar-44138717a/)_**
+> Thank you for visting  
+>Regards **_[Tapaswini Kar](https://www.linkedin.com/in/tapaswini-kar-44138717a/)_**
